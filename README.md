@@ -115,8 +115,7 @@ Pharmacovigilance-ADR-Identification-Basics/
 ## Author
 
 **Sankalp Verma**
-
-M.Pharm (Forensic Pharmacy)
+(B.Pharm Graduate)
 
 Interested in:
 
